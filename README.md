@@ -5,6 +5,7 @@ Here is a list of resources and information mentioned during the onsite training
 
 # Webcasts
 [The best Open Source Intelligence (OSINT) resource in my opinion.](https://inteltechniques.com/menu.html)
+
 [This site has excellent resources to improve your finances.](https://www.radicalpersonalfinance.com)
 
 # Other Links
