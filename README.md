@@ -21,6 +21,8 @@ Here is a list of resources and information mentioned during the onsite training
 
 [Learn advanced google Kung Fu! This will start to set you apart from your competition significantly.](https://www.google.com/search?q=advanced+google+searches)
 
+[Negotiating Your Salary: How To Make $1000 a Minute](https://www.amazon.com/Negotiating-Your-Salary-Make-Minute/dp/0931213207/ref=dp_ob_title_bk)
+
 ## General Advice
 * Find an organization that will reimburse your tuition costs if you want to further/start your college education. Organizations can get a tax credit of $5,250.00 per employee per year.
 
