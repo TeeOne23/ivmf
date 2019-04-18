@@ -24,5 +24,5 @@ Here is a list of resources and information mentioned during the onsite training
 ## General Advice
 * Find an organization that will reimburse your tuition costs if you want to further/start your college education. Organizations can get a tax credit of $5,250.00 per employee per year.
 
-* Learn to teach yourself skills versus relying on formal classroom settings. This is another skill that will impact you the rest of your life.
+* Learn to teach yourself skills versus relying on formal classroom settings. This is another skill that will impact you the rest of your life and set you apart.
 
