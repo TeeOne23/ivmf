@@ -10,10 +10,13 @@ Here is a list of resources and information mentioned during the onsite training
 
 # Other Links
 [Access to the top IT Security training for qualifying Vets.](https://hireourheroes.org/veterans-training)
+
 [Local hacker group that gets together once a month. Great way to reach out for advice and excellent way to learn.](https://dc303.org)
+
 [Learn advanced google Kung Fu! This will start to set you apart from your competition significantly.](https://www.google.com/search?q=advanced+google+searches)
 
 # General Advice
 * Find an organization that will reimburse your tuition costs if you want to further/start your college education. Organizations can get a tax credit of $5,250.00 per employee per year.
+
 * Learn to teach yourself skills versus relying on formal classroom settings.
 
